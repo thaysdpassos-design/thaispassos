@@ -1,0 +1,1 @@
+Ola! Me chamo Thais Passos, sou estudante do 1° semestre do curso Técnico de Desenvolvimento de Sistemas na Etec. Alberto Santos Dumond.
